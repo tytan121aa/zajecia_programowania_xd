@@ -1,1 +1,1 @@
-#### TBD xD
+Lubię Lubie]
